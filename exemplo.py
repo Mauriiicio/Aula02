@@ -1,1 +1,0 @@
-codigo maneiro e legal e tudo esta funcionando.asdasdasdasdasdasd
